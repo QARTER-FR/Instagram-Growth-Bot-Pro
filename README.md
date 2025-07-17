@@ -32,7 +32,6 @@
 ## 📞 CONTACT & PURCHASE
 - **Telegram**: https://t.me/danirueaq
 - **Channel**: https://t.me/Sectools1
-- **Email**: instagram@danirueaq.com
 - **Payment**: PayPal, Crypto, Western Union
 
 ## 🎁 LIMITED TIME OFFER
